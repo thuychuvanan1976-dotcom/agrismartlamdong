@@ -1,2 +1,0 @@
-# agrismartlamdong
-AgriSmart Lâm Đồng
